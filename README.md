@@ -52,8 +52,8 @@
 ### Organization:
 #### 1. KASKUS | Penikmat Forum DP 13 | Bandung `2012-2015`
 #### 2. KASKUS | The Loungers | Bandung `2012-2016`
-#### 3. Tiger Association Bandung | Anggota Muda '2018-2018' 
-#### 4. Honda Tiger Mailing List | Member '2023-2024' 
+#### 3. Tiger Association Bandung | Anggota Muda `2018-2018` 
+#### 4. Honda Tiger Mailing List | Member `2018-2021` 
 <br />
 <br />
 
